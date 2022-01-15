@@ -477,3 +477,8 @@ The following are some global research internship positions:
 ### 42.[Summer Internship in IIT Hyderabad](https://ee.iith.ac.in/intern.html)
 * Only for candidates from EE, ECE and EI background are eligible to apply
 #### Deadline: 21 March
+
+
+
+SEE INTERNSHIPS FOR REMAINING NITS AND IITS ALSO
+BESIDES REMAINING IIITS IISERS ETC CAN ALSO BE CONSIDERED
